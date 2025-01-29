@@ -1,5 +1,5 @@
 Hi there, I'm Claire! 👋
-🔬 Researcher | 📊 Data & Modeling | 📝 Scientific Communicator | 🛠️ Obsidian Enthusiast
+🔬 Researcher | 📝 Scientific Communicator | 🛠️ Obsidian Enthusiast
 
 About Me
 I have a background in biomedical engineering and pre-clinical research, with a passion for making complex data accessible, and optimizing workflows for research and productivity. 
