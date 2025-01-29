@@ -1,4 +1,5 @@
 Hi there, I'm Claire! 👋
+
 🔬 Researcher | 📝 Scientific Communicator | 🛠️ Obsidian Enthusiast
 
 About Me
